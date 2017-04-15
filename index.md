@@ -5,8 +5,8 @@ Free 2017 Amonkhet Welcome Deck - Learn to play Magic
 Free foil Amonkhet land - limited quantities
 
 ### Sat 22 & Sun 23 - Amonkhet Pre-Release
-Sealed Deck - 6 Amonkhet packs
-Sat: 1pm ...  Sun: 2pm
+Sealed Deck - 6 Amonkhet packs  
+Sat: 1pm ...  Sun: 2pm  
 
 ### Fri 07, 14, 21 & 28 - Friday Night Magic
 Booster Draft or 2-Head Giant - Aether Revolt  

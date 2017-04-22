@@ -9,7 +9,6 @@ Booster Draft or 2-Head Giant - Aether Revolt
 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
 Events start at approximately 8p  
 Please try to arrive close to 7:40p  
-No FNM on 28th April - Closed due to planned event.
 
 ### Thurs 06, 13, 20, 27 - Casual Standard Contructed
 until and unless 8+ people want to pay/play for DCI/prizes  

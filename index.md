@@ -1,22 +1,28 @@
-## Magic Events April 2017
+## Magic Events May 2017
 
-### Sat 22 & Sun 23 - Amonkhet Pre-Release
-Sealed Deck - 6 Amonkhet packs  
-Sat: 1pm ...  Sun: 2pm  
+### Sun 21 - Amonkhet Game Day
+Standard  
+Sun: 2pm  
 
-### Fri 07, 14 & 21 - Friday Night Magic
-Booster Draft or 2-Head Giant - Aether Revolt  
+### Fri 05, 12, 19 & 26 - Friday Night Magic
+Booster Draft or 2-Head Giant - Amonkhet  
 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
 Events start at approximately 8p  
 Please try to arrive close to 7:40p  
+
+### Sat 06, 13, 20 & 27 - Magic League Amonkhet
+Minimum 30 card deck from 3 boosters..
+After each week and 3 losses, and a booster..  
+Events start at approximately 7p  
+Please try to arrive close to 6:40p  
+
+### Sun 07 & 21 - Magic Standard Showdown Amonkhet
+each Sun 2-8pm - Please Call First  
 
 ### Thurs 06, 13, 20, 27 - Casual Standard Contructed
 until and unless 8+ people want to pay/play for DCI/prizes  
 also Pack Wars/Mini Master - Kaladesh Set or player's choice  
 Events start at approximately 8p - Please Call First  
-
-### Sun 02, 09, 16, 23, 30 - Commmander
-each Sun 2-8pm - Please Call First  
 
 ## Address
 BCS Books and Comics  

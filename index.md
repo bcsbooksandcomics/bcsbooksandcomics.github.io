@@ -1,7 +1,7 @@
 ## Magic Events July 2017
 
 ### Sat 08 & Sun 09 - Hour of Devastation Pre-Release
-Sealed Draft 
+Sealed Draft   
 Sat: 1pm  Sun: 2pm  
 
 ### Fri 07, 14, 21 & 28 - Friday Night Magic

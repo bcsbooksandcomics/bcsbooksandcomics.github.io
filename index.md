@@ -35,9 +35,10 @@ what was Luby's at one time
 
 ## Hours
 
-* Tuesday - Saturday: 12pm - 8pm
-* Sunday: 1pm - 7pm
-* Monday: closed
+* Tuesday - Friday: 5:30pm - 8pm   
+* Saturday: 12pm - 8pm   
+* Sunday: 1pm - 7pm   
+* Monday: closed   
 
 ## Contact
 

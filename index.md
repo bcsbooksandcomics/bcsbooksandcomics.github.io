@@ -13,7 +13,7 @@ Please try to arrive close to 7:40p
 ### Sat 08, 22 & 29 - Magic Standard Showdown Amonkhet
 
 ### Sun 09, 23 & 30 - Magic League Hour of Devastation
-Minimum 30 card deck from 3 boosters..
+Minimum 30 card deck from 3 boosters..   
 After each week and 3 losses, and a booster..  
 each Sun 2-8pm - Please Call First  
 

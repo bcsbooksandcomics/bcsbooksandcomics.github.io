@@ -1,7 +1,7 @@
 ## Magic Events Sept 2017
 
 ### Sat 23 & Sun 24 - Ixalan Pre-Release
-Sealed Draft   
+Sealed Deck - 6 Ixalan boosters  
 Sat: 1pm   
 Sun: 2pm  
 

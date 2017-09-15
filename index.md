@@ -6,8 +6,8 @@ Sat: 1pm
 Sun: 2pm  
 
 ### Fri 01, 08, 15, 22 & 29 - Friday Night Magic
-Booster Draft or 2-Head Giant - Amonkhet/Hour of Devastation
-Ixalan on 29th +
+Booster Draft or 2-Head Giant - Amonkhet/Hour of Devastation   
+Ixalan on 29th +   
 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
 Events start at approximately 8p  
 Please try to arrive close to 7:40p  

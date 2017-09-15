@@ -1,25 +1,21 @@
-## Magic Events July 2017
+## Magic Events Sept 2017
 
-### Sat 08 & Sun 09 - Hour of Devastation Pre-Release
+### Sat 23 & Sun 24 - Ixalan Pre-Release
 Sealed Draft   
 Sat: 1pm   
 Sun: 2pm  
 
-### Fri 07, 14, 21 & 28 - Friday Night Magic
-Booster Draft or 2-Head Giant - Amonkhet/Hour of Devastation   
+### Fri 01, 08, 15, 22 & 29 - Friday Night Magic
+Booster Draft or 2-Head Giant - Amonkhet/Hour of Devastation
+Ixalan on 29th +
 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
 Events start at approximately 8p  
 Please try to arrive close to 7:40p  
 
-### Sat 22 & 29 - Magic Standard Showdown Amonkhet
+### Sat 16 - Ixalan Open House
+Relaxed new player environment
    
-   
-### Sun 23 & 30 - Magic League Hour of Devastation
-Minimum 30 card deck from 3 boosters..   
-After each week and 3 losses, and a booster..  
-each Sun 2-8pm - Please Call First  
-
-### Thurs 06, 13, 20, 27 - Casual Standard Contructed
+### Thurs 07, 14, 21, 28 - Casual Standard Contructed
 until and unless 8+ people want to pay/play for DCI/prizes  
 also Pack Wars/Mini Master - Kaladesh Set or player's choice  
 Events start at approximately 8p - Please Call First  

@@ -1,23 +1,20 @@
-## Magic Events Sept 2017
+## Magic Events Nov/Dec 2017
 
-### Sat 23 & Sun 24 - Ixalan Pre-Release
-Sealed Deck - 6 Ixalan boosters  
-Sat: 1pm   
-Sun: 2pm  
+### Sat Dec 09 & Sun Dec 10 - Unstable (New UN set)
+Casual Draft Weekend
 
-### Fri 01, 08, 15, 22 & 29 - Friday Night Magic
-Booster Draft or 2-Head Giant - Amonkhet/Hour of Devastation   
-Ixalan on 29th +   
+### Fri Nov 03, 10, 17, 24 & Dec 01, 08, 15, 22, 29 - Friday Night Magic
+Booster Draft or 2-Head Giant - Ixalan   
 2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
 Events start at approximately 8p  
 Please try to arrive close to 7:40p  
 
-### Sat 16 - Ixalan Open House
-Relaxed new player environment
+### Sat Nov 04 - Ixalan Showdown
+Standard Format
    
-### Thurs 07, 14, 21, 28 - Casual Standard Contructed
+### Thurs Nov 02, 09, 16, 23, 30 & Dec 07, 14, 21, 28 - Casual Standard Contructed
 until and unless 8+ people want to pay/play for DCI/prizes  
-also Pack Wars/Mini Master - Kaladesh Set or player's choice  
+also Pack Wars/Mini Master - Ixalan Set or player's choice  
 Events start at approximately 8p - Please Call First  
 
 ## Address
@@ -31,7 +28,7 @@ what was Luby's at one time
 
 ## Hours
 
-* Tuesday - Friday: 5:30pm - 8pm   
+* Tuesday - Friday: 3:30pm - 8pm   
 * Saturday: 12pm - 8pm   
 * Sunday: 1pm - 7pm   
 * Monday: closed   

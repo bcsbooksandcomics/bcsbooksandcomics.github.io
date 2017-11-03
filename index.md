@@ -24,7 +24,7 @@ Bryan, TX 77802
 
 Corner of Texas and Inwood  
 1 block north of Cafe Eccell  
-what was Luby's at one time  
+(was previously Luby's)
 
 ## Hours
 

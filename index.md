@@ -12,7 +12,7 @@ Please try to arrive close to 7:40p
 ### Sat Nov 04 - Ixalan Showdown
 Standard Format
    
-### Thurs Nov 02, 09, 16, 23, 30 & Dec 07, 14, 21, 28 - Casual Standard Contructed
+### Thurs Nov 02, 09, 16, 23, 30 & Dec 07, 14, 21, 28 - Casual Standard
 until and unless 8+ people want to pay/play for DCI/prizes  
 also Pack Wars/Mini Master - Ixalan Set or player's choice  
 Events start at approximately 8p - Please Call First  

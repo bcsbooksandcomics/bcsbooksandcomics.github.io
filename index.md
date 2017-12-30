@@ -1,22 +1,26 @@
-## Magic Events Nov/Dec 2017
+## Magic Events Dec 2017 & Jan/Feb 2018
 
-### Sat Dec 09 & Sun Dec 10 - Unstable (New UN set)
-Casual Draft Weekend
+### Sat 30 Dec - Store Championship Ixalan   
+2p - Booster Draft - Nice Prizes   
 
-### Fri Nov 03, 10, 17, 24 & Dec 01, 08, 15, 22, 29 - Friday Night Magic
-Booster Draft or 2-Head Giant - Ixalan   
-2 Head Giant Sealed requires # of players multiple of 4... (8, 12, 16, ..)  
-Events start at approximately 8p  
-Please try to arrive close to 7:40p  
+### Sun 07 Jan - Magic Open House   
+2p - Casual Multi-player   
 
-### Sat Nov 04 - Ixalan Showdown
-Standard Format
+### Sat 13/Sun 14 Jan - Prerelease Rivals of Ixalan   
+2p - Sealed Decks & Casual Multi-player   
+
+### Sat 20/Sun 21 Jan - Draft Weekend Rivals of Ixalan   
+2p - Booster Drafts   
+
+### Fri Jan 05, 12, 19, 26 & Feb 06, 13, 20, 27 - Friday Night Magic   
+Booster Draft and/or Commander - Ixalan and/or Rivals   
+Events start at approximately 8p   
+Please try to arrive close to 7:40p   
+
+### Sat Jan 27 & Feb 03, 12, 19, 26 - Ixalan League & Showdown   
+Showdown - Standard   
+League - inquire within   
    
-### Thurs Nov 02, 09, 16, 23, 30 & Dec 07, 14, 21, 28 - Casual Standard
-until and unless 8+ people want to pay/play for DCI/prizes  
-also Pack Wars/Mini Master - Ixalan Set or player's choice  
-Events start at approximately 8p - Please Call First  
-
 ## Address
 BCS Books and Comics  
 701 Inwood Dr.  

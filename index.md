@@ -1,7 +1,4 @@
-## Magic Events Dec 2017 & Jan/Feb 2018
-
-### Sat 30 Dec - Store Championship Ixalan   
-2p - Booster Draft - Nice Prizes   
+## Magic Events Jan/Feb 2018
 
 ### Sun 07 Jan - Magic Open House   
 2p - Casual Multi-player   

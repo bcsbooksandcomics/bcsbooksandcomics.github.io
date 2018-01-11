@@ -1,8 +1,5 @@
 ## Magic Events Jan/Feb 2018
 
-### Sun 07 Jan - Magic Open House   
-2p - Casual Multi-player   
-
 ### Sat 13/Sun 14 Jan - Prerelease Rivals of Ixalan   
 5p Sat 13 - Sealed Deck
 2p Sun 14 - Sealed Deck or 2-Headed Giant

@@ -7,7 +7,8 @@
 2p - Casual Multi-player   
 
 ### Sat 13/Sun 14 Jan - Prerelease Rivals of Ixalan   
-2p - Sealed Decks & Casual Multi-player   
+5p Sat 13 - Sealed Deck
+2p Sun 14 - Sealed Deck or 2-Headed Giant
 
 ### Sat 20/Sun 21 Jan - Draft Weekend Rivals of Ixalan   
 2p - Booster Drafts   

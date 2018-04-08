@@ -1,20 +1,28 @@
-## Magic Events Jan/Feb 2018
+## Magic Events Apr/May 2018
 
-### Sat 13/Sun 14 Jan - Prerelease Rivals of Ixalan   
-5p Sat 13 - Sealed Deck   
-2p Sun 14 - Sealed Deck or 2-Headed Giant
+### Sat 21/Sun 22 Apr - Prerelease Dominaria   
+5p Sat 21 - Sealed Deck   
+2p Sun 22 - Sealed Deck or 2-Headed Giant
 
-### Sat 20/Sun 21 Jan - Draft Weekend Rivals of Ixalan   
-2p - Booster Drafts   
+### Sun 08 Apr - Store Championship Rivals of Ixalan   
+2p - Booster Draft   
 
-### Fri Jan 05, 12, 19, 26 & Feb 06, 13, 20, 27 - Friday Night Magic   
-Booster Draft and/or Commander - Ixalan and/or Rivals   
+### Sun 15 Apr - Dominaria Open House   
+2p - Casual Multi-player   
+
+### Sat 28/Sun 29 Apr - Draft Weekend Rivals of Ixalan   
+2p - 2-headed Giant   
+
+### Fri Apr 06, 13, 20, 27 & May 04, 11, 18, 25 - Friday Night Magic   
+Booster Draft and/or Commander - Ixalan/Rivals or Dominaria   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sat Jan 27 & Feb 03, 12, 19, 26 - Ixalan League & Showdown   
-Showdown - Standard   
+### Sat Apr 21, 28 & May 05, 12, 19, 26 - Dominaria League   
 League - inquire within   
+
+### Sun Apr 22, 29 & May 06, 13, 20, 27 - Dominaria Showdown   
+Showdown - Standard   
    
 ## Address
 BCS Books and Comics  

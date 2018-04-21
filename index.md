@@ -1,7 +1,7 @@
 ## Magic Events Apr/May 2018
 
 ### Sat 21/Sun 22 Apr - Prerelease Dominaria   
-5p Sat 21 - Sealed Deck   
+2p Sat 21 - Sealed Deck   
 2p Sun 22 - Sealed Deck or 2-Headed Giant
 
 ### Sun 08 Apr - Store Championship Rivals of Ixalan   

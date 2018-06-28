@@ -1,27 +1,27 @@
-## Magic Events Apr/May 2018
+## Magic Events July/Aug 2018
 
-### Sat 21/Sun 22 Apr - Prerelease Dominaria   
-2p Sat 21 - Sealed Deck   
-2p Sun 22 - Sealed Deck or 2-Headed Giant
+### Sat 07/Sun 08 July - Prerelease Core M19   
+2p Sat 07 - Sealed Deck   
+2p Sun 08 - Sealed Deck or 2-Headed Giant
 
-### Sun 08 Apr - Store Championship Rivals of Ixalan   
-2p - Booster Draft   
-
-### Sun 15 Apr - Dominaria Open House   
-2p - Casual Multi-player   
-
-### Sat 28/Sun 29 Apr - Draft Weekend Rivals of Ixalan   
-2p - 2-headed Giant   
-
-### Fri Apr 06, 13, 20, 27 & May 04, 11, 18, 25 - Friday Night Magic   
-Booster Draft and/or Commander - Ixalan/Rivals or Dominaria   
+### Fri June 29 July 06, 13, 20, 27 & Aug 03, 10, 17, 24, 31 - Friday Night Magic   
+Booster Draft and/or Commander - Dominaria or M19   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sat Apr 21, 28 & May 05, 12, 19, 26 - Dominaria League   
+### Sun 01 July- Core M19 Open House   
+2p - Casual Multi-player   
+
+### Sun 14/Sun 15 July- Core M19 Draft Weekend   
+2p - Booster Draft   
+
+### Sun 20 July- Core M19 Tournament   
+2p - Casual Commander and/or Booster Draft Tournament   
+
+### Sat July 21, 28 & Aug 04, 11, 25 - M19 League   
 League - inquire within   
 
-### Sun Apr 22, 29 & May 06, 13, 20, 27 - Dominaria Showdown   
+### Sun July 22, 29 & Aug 12, 26 - M19 Showdown   
 Showdown - Standard   
    
 ## Address

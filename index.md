@@ -1,4 +1,4 @@
-## Magic Events Sept/Oct 2018
+## Magic Events Oct/Nov 2018
 
 ### Sat 29/Sun 30 Sept - Prerelease Guilds of Ravnica
 2p Sat 29 - Sealed Deck   

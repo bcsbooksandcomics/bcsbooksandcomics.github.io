@@ -1,28 +1,26 @@
-## Magic Events July/Aug 2018
+## Magic Events Sept/Oct 2018
 
-### Sat 07/Sun 08 July - Prerelease Core M19   
-2p Sat 07 - Sealed Deck   
-2p Sun 08 - Sealed Deck or 2-Headed Giant
+### Sat 29/Sun 30 Sept - Prerelease Guilds of Ravnica
+2p Sat 29 - Sealed Deck   
+2p Sun 30 - Sealed Deck or 2-Headed Giant
 
-### Fri June 29 July 06, 13, 20, 27 & Aug 03, 10, 17, 24, 31 - Friday Night Magic   
-Booster Draft and/or Commander - Dominaria or M19   
+### Fri Oct 05, 12, 19, 26 & Nov 02, 09, 16, 23, 30 - Friday Night Magic   
+Booster Draft and/or Commander - Guilds Of Ravnica   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sun 01 July- Core M19 Open House   
-2p - Casual Multi-player   
-
-### Sun 14/Sun 15 July- Core M19 Draft Weekend   
+### Sat 06/Sun 07 Oct - Guilds of Ravnica Draft Weekend   
 2p - Booster Draft   
 
-### Sun 20 July- Core M19 Tournament   
-2p - Casual Commander and/or Booster Draft Tournament   
-
-### Sat July 21, 28 & Aug 04, 11, 25 - M19 League   
+### Sat Oct 13, 20, 27 & Nov 03 - Guilds of Ravnica League   
 League - inquire within   
 
-### Sun July 22, 29 & Aug 12, 26 - M19 Showdown   
+### Sun Oct 14, 21, 28 - Guilds of Ravnica Showdown   
 Showdown - Standard   
+
+### Fri-Sun Nov 09-11 - Guilds of Ravnica Casual Weekend   
+2p - Casual Multi-Player  
+
    
 ## Address
 BCS Books and Comics  

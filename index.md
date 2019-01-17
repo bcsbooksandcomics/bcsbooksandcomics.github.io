@@ -1,25 +1,22 @@
-## Magic Events Oct/Nov 2018
+## Magic Events Jan/Feb 2019
 
-### Sat 29/Sun 30 Sept - Prerelease Guilds of Ravnica
-2p Sat 29 - Sealed Deck   
-2p Sun 30 - Sealed Deck or 2-Headed Giant
+### Sat 19/Sun 20 Jan - Prerelease Ravnica Allegiance
+2p Sat 19 - Sealed Deck   
+2p Sun 20 - Sealed Deck or 2-Headed Giant
 
-### Fri Oct 05, 12, 19, 26 & Nov 02, 09, 16, 23, 30 - Friday Night Magic   
-Booster Draft and/or Commander - Guilds Of Ravnica   
+### Fri Jan 18, 25 & Feb 01, 08, 15, 22 - Friday Night Magic   
+Booster Draft and/or Commander - Ravnica Allegiance   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sat 06/Sun 07 Oct - Guilds of Ravnica Draft Weekend   
+### Sat 26/Sun 27 Jan - Ravnica Allegiance Draft Weekend   
 2p - Booster Draft   
 
-### Sat Oct 13, 20, 27 & Nov 03 - Guilds of Ravnica League   
+### Sun Feb 03, 10, 17 - Ravnica Allegiance League   
 League - inquire within   
 
-### Sun Oct 14, 21, 28 - Guilds of Ravnica Showdown   
+### Sat Feb 09, 16, 23 - Guilds of Ravnica Showdown   
 Showdown - Standard   
-
-### Fri-Sun Nov 09-11 - Guilds of Ravnica Casual Weekend   
-2p - Casual Multi-Player  
 
    
 ## Address

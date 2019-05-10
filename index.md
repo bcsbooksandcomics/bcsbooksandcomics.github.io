@@ -1,21 +1,21 @@
-## Magic Events Jan/Feb 2019
+## Magic Events May/June 2019
 
-### Sat 19/Sun 20 Jan - Prerelease Ravnica Allegiance
-2p Sat 19 - Sealed Deck   
-2p Sun 20 - Sealed Deck or 2-Headed Giant
+### Sat 08/Sun 09 June - Prerelease Modern Horizons   
+2p Sat 08 - Booster Draft   
+2p Sun 09 - Booster Draft   
 
-### Fri Jan 18, 25 & Feb 01, 08, 15, 22 - Friday Night Magic   
+### Fri May 10, 17, 24, 31 & June 07, 14, 21 - Friday Night Magic   
 Booster Draft and/or Commander - Ravnica Allegiance   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sat 26/Sun 27 Jan - Ravnica Allegiance Draft Weekend   
+### Sat 26 May - War of the Spark Planeswalker Draft Weekend   
 2p - Booster Draft   
 
-### Sun Feb 03, 10, 17 - Ravnica Allegiance League   
+### Sun May - War of the Spark League   
 League - inquire within   
 
-### Sat Feb 09, 16, 23 - Guilds of Ravnica Showdown   
+### Sat May 18 & June 01, 15 - War of the Spark Showdown   
 Showdown - Standard   
 
    
@@ -30,8 +30,8 @@ Corner of Texas and Inwood
 
 ## Hours
 
-* Tuesday - Friday: 3:30pm - 8pm   
-* Saturday: 12pm - 8pm   
+* Tuesday - Friday: 3pm - 8pm   
+* Saturday: 1pm - 8pm   
 * Sunday: 1pm - 7pm   
 * Monday: closed   
 

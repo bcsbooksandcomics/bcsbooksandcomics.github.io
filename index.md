@@ -1,22 +1,19 @@
-## Magic Events May/June 2019
+## Magic Events July/Aug 2019
 
-### Sat 08/Sun 09 June - Prerelease Modern Horizons   
-2p Sat 08 - Booster Draft   
-2p Sun 09 - Booster Draft   
+### Sat 06/Sun 07 July - Prerelease Core Set 2020   
+2p Sat 06 - Booster Draft   
+2p Sun 07 - Booster Draft   
 
-### Fri May 10, 17, 24, 31 & June 07, 14, 21 - Friday Night Magic   
-Booster Draft and/or Commander - Ravnica Allegiance   
+### Most Fridays - Friday Night Magic   
+Booster Draft and/or Commander - Core Set 2020   
 Events start at approximately 8p   
 Please try to arrive close to 7:40p   
 
-### Sat 26 May - War of the Spark Planeswalker Draft Weekend   
+### Sat 13/Sun 14 July - Core Set 2020 Draft Weekend   
 2p - Booster Draft   
 
 ### Sun May - War of the Spark League   
 League - inquire within   
-
-### Sat May 18 & June 01, 15 - War of the Spark Showdown   
-Showdown - Standard   
 
    
 ## Address

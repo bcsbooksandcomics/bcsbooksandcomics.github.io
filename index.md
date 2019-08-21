@@ -1,19 +1,17 @@
-## Magic Events July/Aug 2019
+## Magic Events Aug/Sept 2019
 
-### Sat 06/Sun 07 July - Prerelease Core Set 2020   
-2p Sat 06 - Booster Draft   
-2p Sun 07 - Booster Draft   
+### Fri 27/Sat 28/Sun 29 Sept - Prerelease Throne of Eldraine   
+Fri 27 - Inquire Within
+2p Sat 28 - Booster Draft   
+2p Sun 29 - Booster Draft   
 
 ### Most Fridays - Friday Night Magic   
 Booster Draft and/or Commander - Core Set 2020   
-Events start at approximately 8p   
-Please try to arrive close to 7:40p   
+Events start at approximately 7:30p   
+Please try to arrive close to 7:05p   
 
-### Sat 13/Sun 14 July - Core Set 2020 Draft Weekend   
-2p - Booster Draft   
-
-### Sun May - War of the Spark League   
-League - inquire within   
+### Sun 25 Aug - Magic Commander Weekend   
+Casual Commander Multiplayer
 
    
 ## Address

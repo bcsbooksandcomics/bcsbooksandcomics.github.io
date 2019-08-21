@@ -1,7 +1,7 @@
 ## Magic Events Aug/Sept 2019
 
 ### Fri 27/Sat 28/Sun 29 Sept - Prerelease Throne of Eldraine   
-Fri 27 - Inquire Within
+Fri 27 - Inquire Within   
 2p Sat 28 - Booster Draft   
 2p Sun 29 - Booster Draft   
 

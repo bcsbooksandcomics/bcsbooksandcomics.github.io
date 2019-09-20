@@ -1,4 +1,4 @@
-## Magic Events Aug/Sept 2019
+## Magic Events Sept/Oct 2019
 
 ### Fri 27/Sat 28/Sun 29 Sept - Prerelease Throne of Eldraine   
 7p Fri 27 - Sealed Deck   

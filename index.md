@@ -1,14 +1,13 @@
 ## Magic Events Aug/Sept 2019
 
 ### Fri 27/Sat 28/Sun 29 Sept - Prerelease Throne of Eldraine   
-Fri 27 - Inquire Within   
-2p Sat 28 - Booster Draft   
-2p Sun 29 - Booster Draft   
+7p Fri 27 - Sealed Deck   
+2p Sat 28 - Sealed Deck   
+2p Sun 29 - Sealed Deck or 2 Head Giant   
 
 ### Most Fridays - Friday Night Magic   
 Booster Draft and/or Commander - Core Set 2020   
-Events start at approximately 7:30p   
-Please try to arrive close to 7:05p   
+Events start at approximately 7:00p   
 
 ### Sun 25 Aug - Magic Commander Weekend   
 Casual Commander Multiplayer
@@ -33,7 +32,7 @@ Corner of Texas and Inwood
 ## Contact
 
 * phone: 979-846-7412
-* e-mail: bcsbooksandcomics at gmail dot com
+* e-mail: bcsbooksandcomics@gmail.com
 
 ### GitHub
 

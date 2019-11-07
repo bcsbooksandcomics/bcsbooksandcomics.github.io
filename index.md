@@ -1,16 +1,13 @@
-## Magic Events Sept/Oct 2019
+## Magic Events Nov/Dec 2019
 
-### Fri 27/Sat 28/Sun 29 Sept - Prerelease Throne of Eldraine   
-7p Fri 27 - Sealed Deck   
-2p Sat 28 - Sealed Deck   
-2p Sun 29 - Sealed Deck or 2 Head Giant   
+### Fri 17/Sat 18/Sun 19 Jan 2020 - Prerelease Theros Beyond Death   
+7p Fri 17 - Sealed Deck   
+2p Sat 18 - Sealed Deck   
+2p Sun 19 - Sealed Deck or 2 Head Giant   
 
 ### Most Fridays - Friday Night Magic   
-Booster Draft and/or Commander - Core Set 2020   
+Booster Draft and/or Commander - Throne of Eldraine   
 Events start at approximately 7:00p   
-
-### Sun 25 Aug - Magic Commander Weekend   
-Casual Commander Multiplayer
 
    
 ## Address

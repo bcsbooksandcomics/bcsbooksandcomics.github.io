@@ -1,12 +1,12 @@
-## Magic Events Nov/Dec 2019
+## Magic Events Feb/Mar/Apr 2020
 
-### Fri 17/Sat 18/Sun 19 Jan 2020 - Prerelease Theros Beyond Death   
+### Fri 17/Sat 18/Sun 19 Apr 2020 - Prerelease Ikoria: Lair of Behemoths   
 7p Fri 17 - Sealed Deck   
 2p Sat 18 - Sealed Deck   
 2p Sun 19 - Sealed Deck or 2 Head Giant   
 
 ### Most Fridays - Friday Night Magic   
-Booster Draft and/or Commander - Throne of Eldraine   
+Booster Draft and/or Commander - Theros Beyond Death   
 Events start at approximately 7:00p   
 
    

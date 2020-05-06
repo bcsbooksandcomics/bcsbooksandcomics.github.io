@@ -1,9 +1,8 @@
-## Magic Events Feb/Mar/Apr 2020
-
-### Fri 17/Sat 18/Sun 19 Apr 2020 - Prerelease Ikoria: Lair of Behemoths   
-7p Fri 17 - Sealed Deck   
-2p Sat 18 - Sealed Deck   
-2p Sun 19 - Sealed Deck or 2 Head Giant   
+### Ikoria: Lair of Behemoths will be available May 15, 2020   
+Pre-release Decks   
+Ikoria Boosters and Booster Boxes   
+Ikoria Prerelease Bundle   
+Commander Decks - 2020 Edition   
 
 ### Most Fridays - Friday Night Magic   
 Booster Draft and/or Commander - Theros Beyond Death   
@@ -17,18 +16,16 @@ Bryan, TX 77802
 
 Corner of Texas and Inwood  
 1 block north of Cafe Eccell  
-(was previously Luby's)
 
 ## Hours
 
-* Tuesday - Friday: 3pm - 8pm   
-* Saturday: 1pm - 8pm   
-* Sunday: 1pm - 7pm   
-* Monday: closed   
+* Tuesday - Friday: 5:15pm - 7pm   
+* Saturday - Sunday: 2pm - 7pm   
 
 ## Contact
 
-* phone: 979-846-7412
+* phone during business hours: 979-846-7412   
+* cell: 979-492-2013 (please leave msg or text)   
 * e-mail: bcsbooksandcomics@gmail.com
 
 ### GitHub

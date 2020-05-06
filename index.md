@@ -4,10 +4,6 @@ Ikoria Boosters and Booster Boxes
 Ikoria Prerelease Bundle   
 Commander Decks - 2020 Edition   
 
-### Most Fridays - Friday Night Magic   
-Booster Draft and/or Commander - Theros Beyond Death   
-Events start at approximately 7:00p   
-
    
 ## Address
 BCS Books and Comics  

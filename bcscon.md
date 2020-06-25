@@ -1,3 +1,9 @@
+[Home](index.md) |
+[Address](bcsaddr.md) | 
+[Hours](bcshrs.md) | 
+[Contact](bcscon.md) |
+[Git](bcsgit.md)   
+
 ## Contact
 
 * phone during business hours: 979-846-7412   

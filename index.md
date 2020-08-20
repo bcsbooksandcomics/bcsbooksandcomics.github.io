@@ -11,3 +11,4 @@ Tuesday 22 Sept 2020 - Thursday 24 Sept 2020
 
 FNM: Fridays at 7pm
    
+![AmEx Ad](2020socialPost1.jpg)

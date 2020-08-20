@@ -4,10 +4,9 @@
 [Contact](bcscon.md) |
 [Git](bcsgit.md)
 
-### Pre-release Core Set 2021   
-Friday 26 Jun 2020 7pm - Sealed   
-Saturday 27 Jun 2020 2:30pm - Sealed   
-Sunday 28 Jun 2020 2:30pm - 2HG Sealed   
+### Pre-release Zendikar Rising At-Home   
+Friday 18 Sept 2020 - Sunday 20 Sept 2020   
+Tuesday 22 Sept 2020 - Thursday 24 Sept 2020   
 
 FNM: Fridays at 7pm
    

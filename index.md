@@ -1,4 +1,5 @@
 [Home](index.md) |
+[Magic Events](bcsmtgeve.md) |
 [Address](bcsaddr.md) | 
 [Hours](bcshrs.md) | 
 [Contact](bcscon.md) |

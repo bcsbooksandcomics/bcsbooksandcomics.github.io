@@ -5,9 +5,9 @@
 [Contact](bcscon.md) |
 [Git](bcsgit.md)
 
-### Pre-release Zendikar Rising At-Home   
-Friday 18 Sept 2020 - Sunday 20 Sept 2020   
-Tuesday 22 Sept 2020 - Thursday 24 Sept 2020   
+### Pre-release Commander Legends At-Home   
+Friday 13 Nov 2020 - Sunday 15 Nov 2020   
+Tuesday 17 Nov 2020 - Thursday 19 Nov 2020   
 
 FNM: Fridays at 7pm
    

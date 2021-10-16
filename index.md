@@ -9,6 +9,6 @@
 Friday 13 Nov 2020 - Sunday 15 Nov 2020   
 Tuesday 17 Nov 2020 - Thursday 19 Nov 2020   
 
-FNM: was Fridays at 7pm on hold during COVID-19
+FNM: is usually on Fridays at 7pm (was on hold during COVID-19)
    
 [![ShopSmall AmEx Ad](2020socialPost3.jpg)](http://shopsmall.com/)
